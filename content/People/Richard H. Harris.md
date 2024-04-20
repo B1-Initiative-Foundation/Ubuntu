@@ -25,7 +25,7 @@ Information not provided
 Information not provided
 
 ## Known Affiliates Names
- [[Tuskegee Airmen]], [[Martin Luther King Jr]], [[John W. Jones]], [[Lionel Ritchie]], [[Ralph D. Abernathy]], [[James Farmer]], [[John Robert Lewis]], [[Diane Nash]], [[Rosa Parks]]
+ [[Tuskegee Airmen]], [[Martin Luther King Jr]], [[John W. Jones]], [[Lionel Ritchie]], [[Ralph D. Abernathy]], [[James Farmer, Jr]], [[John Robert Lewis]], [[Diane Nash]], [[Rosa Parks]]
 
 ## Affiliated Organizations' Names
  [[United States Army Air Forces]], [[Red Tails]], [[Montgomery Bus Boycott]], [[Freedom Riders]], [[Richard Harris House]], [[World Monuments Fund]], [[Black Birdmen]], [[Dead Drug Store]], [[U.S. Army Air Corps]]
